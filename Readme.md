@@ -1,4 +1,4 @@
-= The Speckled Egg
+# The Speckled Egg
 
 This is a whimsical story, adapted from the Brothers G.
 

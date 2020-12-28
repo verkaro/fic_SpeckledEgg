@@ -1,5 +1,5 @@
-== The Speckled Egg
-.quote
+## The Speckled Egg
+
 I am the speckled egg, + 
 the nest in the breeze, + 
 your feet on the ground, and + 
@@ -23,64 +23,64 @@ She said the master of the house must surely be dead.
 The dark forest was full of bandits; she knew well.
 And these bandits would rob a man and slit his throat just as a matter of business." She added that the house would be good as theirs if they could only get rid of the children.
 
-"`Tomorrow,`" said the cook, "`we will put a large pot on to boil for Rico.
-And where he goes, Marta will soon follow.`"
+"Tomorrow," said the cook, "we will put a large pot on to boil for Rico.
+And where he goes, Marta will soon follow."
 
 The two children were fond of hiding games.
 With their ears to the kitchen door, hearing the wicked plan, their mouths fell open.
 Quietly they slipped away.
-Marta whispered, "`But Rico, instead of this, tomorrow we will rise earlier than does our misfortune.`"
+Marta whispered, "But Rico, instead of this, tomorrow we will rise earlier than does our misfortune."
 
 The next day when the kitchen kettle came to a rolling boil, the cook said it was time to fetch sleepy Rico.
 On tip-toes, they entered the children’s room.
 The cook held the candle high while the laborer lifted back the covers.
 With a start, they found only a bundle of clothes in two neat piles.
 
-"`Gone! The little brutes, the little thieves.`" cried the cook.
-"`Go find them at once and bring them back.`"
+"Gone! The little brutes, the little thieves." cried the cook.
+"Go find them at once and bring them back."
 
 In the forest the children spied the laborer some distance behind and tracking their trail.
 
 Rico cried.
-"`What shall we do?`"
+"What shall we do?"
 
-Marta said to Rico, "`Say quick; we belong together.`"
+Marta said to Rico, "Say quick; we belong together."
 
-"`Forever and evermore,`" said Rico.
+"Forever and evermore," said Rico.
 
-"`Then, in this tree, you must become a nest – and look, I will be the egg.`"
+"Then, in this tree, you must become a nest – and look, I will be the egg."
 
 The laborer came up to the tree, but he found nothing there of interest, only a swaying nest with one lovely egg.
-"`I have surely lost the trail,`" he said and went back to tell the cook.
+"I have surely lost the trail," he said and went back to tell the cook.
 
 The cook scolded him.
-"`Bah, Simpleton! You should have torn the nest down, taken the egg and brought it back.
-Go do it at once.`"
+"Bah, Simpleton! You should have torn the nest down, taken the egg and brought it back.
+Go do it at once."
 
 The man went out a second time, but again the children saw him coming from afar.
 
-"`Rico say quick, we belong together,`" said Marta.
+"Rico say quick, we belong together," said Marta.
 
-"`Forever and evermore,`" said Rico.
+"Forever and evermore," said Rico.
 
-"`Then, you must become a church – and look, I will be the candle.`"
+"Then, you must become a church – and look, I will be the candle."
 
 So, when the laborer came to a clearing, he found nothing but a church with one bright candle flickering upon the altar.
-He said, "`There are no children here.
-Again, the trail has gone cold.`"
+He said, "There are no children here.
+Again, the trail has gone cold."
 
 Upon returning to the house, he explained all he had found.
 
-"`You fool! Why did you not pull the church to pieces and bring the candle home with you?`"
+"You fool! Why did you not pull the church to pieces and bring the candle home with you?"
 
 Now, the cook got herself up and went out together in pursuit of the children.
 But Marta and Rico expected trouble yet and saw them coming.
 
-"`Rico say quick, we belong together,`" said Marta.
+"Rico say quick, we belong together," said Marta.
 
-"`Forever and evermore,`" said her brother.
+"Forever and evermore," said her brother.
 
-"`Then be a fishpond and look, I will be what I must.`"
+"Then be a fishpond and look, I will be what I must."
 
 The two wicked servants came up then.
 When the cook saw a pond full of golden fish in the dark forest, she suspected some ruse.
